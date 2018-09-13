@@ -1,2 +1,0 @@
-# spidcalabria
-Regione Calabria - Spid
